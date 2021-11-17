@@ -57,4 +57,6 @@ The Collar - The collar is a high tech collar, style and colours of the collar c
 
 The Syrups - The syrups are modified versions of the following lotions: Original Pink, Dark Pink, Silver, Gold, Red, and Dark Blue~ The syrups are used by drinking them, once a syrup has been drank, the syrup temporarily changes the uses bodily fluids, i.e. saliva, to have the effects of the lotions~ The user would be required to use one of the immunity pills or syringes to not be affected by the syrup~ The effects of the syrups take 5 minutes to get to work changing the bodily fluids to start having an effect, the effects last for 4 hours after being consumed~
 
+The White Lotion - This lotion comes in the forms of syrups, tattoo inks, powders, teas, candies and syringes~ This lotion completely nullifies any arousal the user may have~ The effect is immediate and clears the arousal that is currently built up, meaning the user can rebuild their arousal after use immediatetly~ However, these lotions are not for sale and it is hard to gain them from an Angela~
+
 Syringes can be acquired individually, packs of 10 or a box of 40~
