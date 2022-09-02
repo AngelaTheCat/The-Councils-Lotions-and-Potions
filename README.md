@@ -59,6 +59,9 @@ These syringes are filled with nanites which are preprogrammed to temporarily wi
 ### The Shimmering Gold Black Syringes
 These syringes are filled with modified nanites from the Black Syringes and the Pink Hued Syringes, however, these nanites can be programmed to survive for different lengths of time~ The nanites can be programmed to surive from only a few hours to a year~
 
+### The Clear Syringes
+These syringes are only available for people who really no longer want to have the nanites remaining in them if they have had one of the nanite syringes injected and would otherwise be stuck with them for the forseeable future~ These syringes contain special nanites which quickly removing and destroy any nanites in ones body~
+
 ### The Ruby Red Syringes
 These syringes are imbued with the blood from a certain vampire who roams the club~ The syringe does not give the user vampirism, but does give the user the temporary side effects associated with this vampire~ This vampires side effect is when she is exposed to sunlight or UV light, she becomes extremely aroused and will try to expose herself to more light and try and stimulate herself to orgasm for as long as she is exposed to the light~ The syringes effects last for 12 hours before fading~ Repeated usage within short period of time, i.e. using daily over a week period, may result in the effect becoming permeant~
 
