@@ -69,7 +69,7 @@ These syringes are imbued with the blood from a certain vampire who roams the cl
 This lotion comes in the forms of syrups, tattoo inks, powders, teas, candies and syringes~ This lotion completely nullifies any arousal the user may have~ The effect is immediate and clears the arousal that is currently built up, meaning the user can rebuild their arousal after use immediately~ However, these lotions are not for sale and it is hard to gain them from an Angela~
 
 ### The Yellow Syringes
-These syringes are able to cause the recepient to grow a cock, the size depends on the amount of yellow lotion used. The syringe can also be used to remove the cock if the cock has been grown via the syringe before.
+These syringes are able to cause the recepient to grow a cock, the size depends on the amount of yellow lotion used. The syringe can also be used to remove the cock if the cock has been grown via the syringe before. The effect of the syringe last until another dose of the syringe is given to reverse the affects. The grown cock is normally more senstive then normal for several minutes after being grown~
 
 ## Lipsticks
 
@@ -102,6 +102,9 @@ These are special tattoo inks which have been imbuded with magic~ The inks can b
 
 ## The Incense and Candles
 These are special incese and candles which when they are lit emit the effects of the lotions into the air, and once breathed in the lotions effects start. They come in the following lotions: [The Original Pink](#the-original-pink-lotion), [Dark Pink](#the-dark-pink-lotion), [Silver](#the-silver-lotion), [Gold Syringes](#the-gold-syringes), [Orange](#the-orange-syringes), [Red](#the-red-syringes-lotions-and-gas), [Purple](#the-purple-syringes-and-lotions), and [Dark Blue](#the-dark-blue-lotion-and-syringes)~
+
+## The Small Gas Canisters
+These small gas canisters can be used to quickly fill a room with one of the lotions, each canister contians enough gas to fill a decently sized room with a hazy cloud of the gas. Bigger rooms would cause the gas to be less dense and not as strong where as a small room would make the gas even stronger and thicker, making the gas cloud harder to see through. The following lotions are sold in canisters: [The Original Pink](#the-original-pink-lotion), [Dark Pink](#the-dark-pink-lotion), [Silver](#the-silver-lotion), [Gold Syringes](#the-gold-syringes), [Orange](#the-orange-syringes), [Red](#the-red-syringes-lotions-and-gas), [Purple](#the-purple-syringes-and-lotions), and [Dark Blue](#the-dark-blue-lotion-and-syringes)~
 
 ## A Pot of Good Ol' Itching Powder
 A pot of itching powder which is much more effective then normal itching powder~ This powder causes rather intense itching feelings on afflicted areas~
