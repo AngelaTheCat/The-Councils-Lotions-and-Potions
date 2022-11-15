@@ -68,6 +68,9 @@ These syringes are imbued with the blood from a certain vampire who roams the cl
 ### The White Lotion
 This lotion comes in the forms of syrups, tattoo inks, powders, teas, candies and syringes~ This lotion completely nullifies any arousal the user may have~ The effect is immediate and clears the arousal that is currently built up, meaning the user can rebuild their arousal after use immediately~ However, these lotions are not for sale and it is hard to gain them from an Angela~
 
+### The Yellow Syringes
+These syringes are able to cause the recepient to grow a cock, the size depends on the amount of yellow lotion used. The syringe can also be used to remove the cock if the cock has been grown via the syringe before.
+
 ## Lipsticks
 
 ### The Pink Lipstick and Immunity Pill
@@ -96,6 +99,9 @@ These are ball gags which the ball is a solid piece of candied lotion~ The balls
 
 ## The Tattoo Inks
 These are special tattoo inks which have been imbuded with magic~ The inks can be used with any tattoo gun~ The inks have different characteristics based on the colours of the ink~ The colours follow the same effects as their lotion counterparts, the ink colours availble are Original Pink, Dark Pink, Silver, Gold, Orange, Red, Ruby Red, white(still difficult to obtain~), Purple, Blue, and Dark Blue, each ink shimmers when its effects are active~ The inks can either be permanently active or activated via touch, if the tattoo is to be activated via touch, who ever is applying the tattoo can set a condition if its only the applier who can activate the effect, if a tattoo is not active it will be a dull unshimmering tattoo~
+
+## The Incense and Candles
+These are special incese and candles which when they are lit emit the effects of the lotions into the air, and once breathed in the lotions effects start. They come in the following lotions: [The Original Pink](#the-original-pink-lotion), [Dark Pink](#the-dark-pink-lotion), [Silver](#the-silver-lotion), [Gold Syringes](#the-gold-syringes), [Orange](#the-orange-syringes), [Red](#the-red-syringes-lotions-and-gas), [Purple](#the-purple-syringes-and-lotions), and [Dark Blue](#the-dark-blue-lotion-and-syringes)~
 
 ## A Pot of Good Ol' Itching Powder
 A pot of itching powder which is much more effective then normal itching powder~ This powder causes rather intense itching feelings on afflicted areas~
